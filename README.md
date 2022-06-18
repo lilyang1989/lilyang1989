@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on web3 teams
 - 📫 How to reach me: dm me at @emorty.eth
 - 😄 Pronouns: emorty
-- ⚡ Fun fact:I produce trash codes and slipping Iced Americano before 4pm☕.
+- ⚡ Fun fact:I produce trash codes and slipping Iced Americano before 4pm☕
 -->
